@@ -1,4 +1,4 @@
-# 
+# جديد grid trading bot for futures سكريبتات لـ Mac OS | فوري grid trading bot for futures سكريبتات لـ PC Windows. مع دعم الهامش المعزول و خوارزميات السكالبينج — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
